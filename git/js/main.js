@@ -1,1 +1,0 @@
-bkas;cbq:sc 
